@@ -1,16 +1,13 @@
-## Hi there 👋
+hi
 
-<!--
-**lowkeyrebecca/lowkeyrebecca** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+if you're like a friend or something please just call me rebecca or becky don't call me audrey fuck off
 
-Here are some ideas to get you started:
+i'll be a bit weird to n, uzi lizzy, doll, darren, sam, kesley and braidon cosplays/irls/kins whatever sorry
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+i'm dry
+
+if you're a friend i might be weird sorry
+
+i'm a lesbian thanks i still love darren and n and whatever though slash sexually or whatever
+
+okay bye
